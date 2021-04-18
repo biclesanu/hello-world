@@ -1,1 +1,2 @@
-nu stiu ce face asta ajutor
+bUna :D 
+(ﾉ◕ヮ◕)ﾉ*:･ﾟ✧
